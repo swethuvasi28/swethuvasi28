@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @swethuvasi28
-- 👀 I’m interested in technolgy stuffs
+- 👀 I’m interested in technical stuffs
 - 🌱 I’m currently learning programming languages
 - 💞️ I’m looking to collaborate on some reputed company
 - 📫 How to reach me via email swethamurugan285@gmail.com
